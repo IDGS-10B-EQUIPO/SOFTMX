@@ -1,4 +1,4 @@
-# TRAUMA
+# SOFTMX
 
 Este sitio está dedicado a promover la publicidad de un juego de suspenso es una plataforma diseñada para sumergir a los visitantes en una experiencia emocional y misteriosa.
 En esencia, el sitio es un centro de emocionante misterio y suspenso, que permite a los usuarios explorar un mundo lleno de suspenso, giros inesperados y desafíos apasionantes.
